@@ -1,1 +1,1 @@
-My name is Shrijay. I am from Jharkhand. I pursued b.tech from Jaypee University of Engineering and Technology. Thats it. 
+My name is Shrijay. I am from Jharkhand. I am pursuing b.tech from Jaypee University of Engineering and Technology. Thats it. 
