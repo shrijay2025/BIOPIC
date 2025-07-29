@@ -1,1 +1,1 @@
-# BIOPIC
+My name is Shrijay. I am from Jharkhand. I pursued b.tech from Jaypee University of Engineering and Technology. Thats it. 
